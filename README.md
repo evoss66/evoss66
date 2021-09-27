@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @evoss66
+- 👀 I’m a CS Undergrad at SDSU
+- 🌱 I’m currently applying for graduate admissions for CS
+- 📫 How to reach me: insta: @e_voss66; email: erik66voss@gmail.com
